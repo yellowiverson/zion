@@ -4,4 +4,6 @@ I am a decent basketball player
 I play point guard as a position
 I wish I could dunk
 
+특기추가
+
 취미 추가
